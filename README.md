@@ -1,2 +1,2 @@
-# dautukhoahoc.com
-Đầu tư sử dụng chất xám
+# taichinhdongian.com
+Học đầu tư cho mọi người
